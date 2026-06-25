@@ -1,1 +1,1 @@
-Khalix
+SynapX
