@@ -1,1 +1,1 @@
-SynapX
+Quantex
